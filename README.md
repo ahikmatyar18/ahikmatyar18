@@ -1,1 +1,1 @@
-# Halo semua! 
+Hi 👋, I'm Abdullah Hikmatyar Priandika
